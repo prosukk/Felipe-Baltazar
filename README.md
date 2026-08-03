@@ -1,8 +1,6 @@
 # Felipe-Baltazar-Aguiar
 ![Profile views](https://gpvc.arturio.dev/prosukk)
 
-- 📚- Uninove - EAD - ADS
-- 📚- Udemy - Desenvolvimento Web
 - 💡 - Buscando conhecimento e aprendendo mais sobre a área.
 - 📧 - felipe.balt0502@gmail.com
 <div>
