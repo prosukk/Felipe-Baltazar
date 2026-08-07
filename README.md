@@ -1,5 +1,4 @@
 # Felipe-Baltazar-Aguiar
-![Profile views](https://gpvc.arturio.dev/prosukk)
 
 - 💡 - Buscando conhecimento e aprendendo mais sobre a área.
 - 📧 - felipe.balt0502@gmail.com
